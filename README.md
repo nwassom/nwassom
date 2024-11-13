@@ -1,4 +1,4 @@
- reach me at newassom@gmail.com
+ reach me at nwassom@outlook.com
 
 <!---
 nwassom/nwassom is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
